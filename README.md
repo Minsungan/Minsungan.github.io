@@ -1,2 +1,0 @@
-# Minsungan.github.io
-.
